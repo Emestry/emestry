@@ -1,1 +1,1 @@
-Olen Ahto ja olen vaimuhaige.
+naudin elu ja panen möllu
